@@ -1,7 +1,0 @@
-Boto3
-  for {
-jfsdnfll
-}
-  TECH EXPERT SOLUTIONS
-  DEVOPE ENGINEER
-  BANGALORE 
